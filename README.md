@@ -1,0 +1,2 @@
+# examen-MC-percep-N6
+ARCHIVOS REALIZADOS EN EXAMEN
